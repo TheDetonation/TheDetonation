@@ -32,7 +32,7 @@ If you can’t handle the heat, the noise, or the silence that comes after it �
 ⠀⠀⠀⠄⠀⠀⠀⠀⠀⠀⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠃⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠄⠀⠐⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⡀⠀⠀⠀⠀⠀⠀⠠⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⠠⠀⠀⡄⠁⠀⠀⠀⠀⠄⠂⠀⠀⠀⠀⠀⠀⠄⠁⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-But if you’re still here… maybe you get it.
+<p align="center">⠀But if you’re still here… maybe you get it.
 Maybe you’ve got a little fire of your own.
 
 Sometimes I still hear his voice — calm where I’m chaos, steady where I’m falling apart. Don’t ask.

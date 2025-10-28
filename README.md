@@ -32,3 +32,10 @@ If you can’t handle the heat, the noise, or the silence that comes after it �
 ⠀⠀⠀⠄⠀⠀⠀⠀⠀⠀⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠃⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠄⠀⠐⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⡀⠀⠀⠀⠀⠀⠀⠠⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⠠⠀⠀⡄⠁⠀⠀⠀⠀⠄⠂⠀⠀⠀⠀⠀⠀⠄⠁⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+But if you’re still here… maybe you get it.
+Maybe you’ve got a little fire of your own.
+
+Sometimes I still hear his voice — calm where I’m chaos, steady where I’m falling apart. Don’t ask.
+Some things burn and don’t fade. Some things burn and become something else.
+
+“Drop a text if you’re brave enough to stand too close to the fire.”

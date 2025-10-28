@@ -37,3 +37,5 @@ If you can’t handle the heat, the noise, or the silence that comes after it �
 <p align="center">⠀Sometimes I still hear his voice — calm where I’m chaos, steady where I’m falling apart. Don’t ask. Some things burn and don’t fade. Some things burn and become something else.
 
 <p align="center">⠀“Drop a text if you’re brave enough to stand too close to the fire.”
+<p align="center">
+  <img src="https://i.postimg.cc/zff1HZBX/image-removebg-preview-2.png" alt="Description" width="500">
